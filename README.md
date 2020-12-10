@@ -2,7 +2,7 @@
 
 about me:
 - hi, i'm anne, i'm a 14 year old trans girl and maybe a lesbian.
-- i'm an italian leftcom.
+- i'm a leftcom, italian leftcom to be specific and i would have sided with damen.
 - i was born in toronto and am french canadian.
 
 interests:
