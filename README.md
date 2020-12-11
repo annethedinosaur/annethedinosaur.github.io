@@ -6,6 +6,7 @@ about me:
 - i'm 14.
 - i'm a trans girl.
 - i might be a lesbian.
+- i hate sex
 - i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
 - i was born in toronto and am french canadian.
 
@@ -31,8 +32,8 @@ ships i like:
 triggers:
 - please don't talk about razors or knives.
 - rape.
-- various kinks (such as masochism, sadism and choking).
-- spec ops: the line
+- kinks.
+- spec ops: the line.
 
 my politics:
 - What I Stand For
