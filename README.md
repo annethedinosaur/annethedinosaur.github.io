@@ -34,7 +34,6 @@ triggers:
 - various kinks (such as masochism, sadism and choking).
 
 my politics:
-Logo: ![Logo of Battaglia Comunista](/Battaglia Communista Logo.png "Battaglia Comunista Logo")
 What I Stand For
 1. My views of the world are those of Marx’s Scientific Socialism.
 2. I see communism as the only viable solution for the survival of humanity.
