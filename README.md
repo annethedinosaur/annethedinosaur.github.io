@@ -31,4 +31,7 @@ ships i like:
 triggers:
 - please don't talk about razors or knives.
 - rape.
-- various kinks (such as masochism, and choking).
+- various kinks (such as masochism, sadism and choking).
+
+my politics:
+Logo: ![Logo of Battaglia Comunista](/wp.png "Battaglia Comunista Logo")
