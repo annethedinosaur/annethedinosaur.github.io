@@ -6,7 +6,7 @@ about me:
 - i'm 14.
 - i'm a trans girl.
 - i might be a lesbian.
-- i'm a leftcom, italian leftcom to be specific and i would have sided with damen.
+- i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
 - i was born in toronto and am french canadian.
 
 interests:
@@ -41,7 +41,7 @@ my politics:
 4. I am for the party, but do not believe any existing organization is the party nor its sole nuclei. The party must be international, and centralised to act as the brain of the class.
 5. The proletarian dictatorship is not to be understood as a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
 6. I do not believe the soviets are organizations of workers from a specific factory, nor are they organizations of workers of a specific trade. On the contrary, they are organizations of delegates from the whole proletariat of a specific region, on the lowest level belonging to a town.
-7. Communism is naturally free of borders, class, money, commodity production, police, armies, state, scarcity, religion, the family, government, hierarchy, exchange, wage labour, etc. Some of these things are inherent to communist society and others will be birthed or destroyed naturally because of it. In the lower phase of communist society, the division of labour has not completely been done away with and distribution is based upon contribution. Under higher phase communism, distribution is based on need and the division of labour is completely abolished. 
+7. I believe communist society is naturally free of borders, class, money, commodity production, police, armies, state, scarcity, religion, the family, government, hierarchy, exchange, wage labour, etc. In the lower phase of communist society, the division of labour has not completely been done away with and distribution is based upon contribution. Under higher phase communism, distribution is based on need and the division of labour is completely abolished. 
 - What I Stand Against
 1.  I do not advocate communism because it will create “equality.” I advocate for communism because we believe it is the emancipation of humanity, and will lead to the material human community and a new era of human freedom and development.
 2. I believe the internationals of “Social-Democracy”, “Trotskyism” and “Marxism-Leninism” are the internationals of betrayal and the "communist" and "socialist" parties are bourgeois.
