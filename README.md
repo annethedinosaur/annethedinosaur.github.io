@@ -6,7 +6,7 @@ about me:
 - i'm 14.
 - i'm a trans girl.
 - i might be a lesbian.
-- i hate sex
+- i hate sex.
 - i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
 - i was born in toronto and am french canadian.
 
@@ -29,11 +29,13 @@ do not interact:
 ships i like:
 - honestly don't know why i'm putting this here because i don't ship anyone (besides the fact i think marx and engels might have been a bit gay for eachother).
 
-triggers:
-- please don't talk about razors or knives.
-- rape.
-- kinks.
-- spec ops: the line.
+triggers (non highlighted is slight, italics is minor, bold is major and italics and bold is a massive trigger):
+- **razors, shanks, and most knives.**
+- **rape.**
+- **kinks.**
+- **spec ops: the line.**
+- ***being misgendered***
+- **yelling**
 
 my politics:
 - What I Stand For
