@@ -32,6 +32,7 @@ triggers:
 - please don't talk about razors or knives.
 - rape.
 - various kinks (such as masochism, sadism and choking).
+- spec ops: the line
 
 my politics:
 - What I Stand For
