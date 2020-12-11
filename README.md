@@ -34,7 +34,7 @@ triggers:
 - various kinks (such as masochism, sadism and choking).
 
 my politics:
-What I Stand For
+- What I Stand For
 1. My views of the world are those of Marx’s Scientific Socialism.
 2. I see communism as the only viable solution for the survival of humanity.
 3. I believe an international revolution led by the vanguard party is the only way to establish the proletarian dictatorship via the soviets for the establishment of communist society.
@@ -42,7 +42,7 @@ What I Stand For
 5. The proletarian dictatorship is not to be understood as a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
 6. I do not believe the soviets are organizations of workers from a specific factory, nor are they organizations of workers of a specific trade. On the contrary, they are organizations of delegates from the whole proletariat of a specific region, on the lowest level belonging to a town.
 7. Communism is naturally free of borders, class, money, commodity production, police, armies, state, scarcity, religion, the family, government, hierarchy, exchange, wage labour, etc. Some of these things are inherent to communist society and others will be birthed or destroyed naturally because of it. In the lower phase of communist society, the division of labour has not completely been done away with and distribution is based upon contribution. Under higher phase communism, distribution is based on need and the division of labour is completely abolished. 
-What I Stand Against
+- What I Stand Against
 1.  I do not advocate communism because it will create “equality.” I advocate for communism because we believe it is the emancipation of humanity, and will lead to the material human community and a new era of human freedom and development.
 2. I believe the internationals of “Social-Democracy”, “Trotskyism” and “Marxism-Leninism” are the internationals of betrayal and the "communist" and "socialist" parties are bourgeois.
 3. I see all unions, whether “rank-and-file”, “industrial” or “trade” as tools of the capitalist class to either keep consciousness low or act as cul-de-sacs of any potential revolutionary consciousness. I am for organizing completely outside and against the unions.
