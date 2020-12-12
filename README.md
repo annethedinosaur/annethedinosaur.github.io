@@ -1,7 +1,5 @@
-# maddiethedinosaur.github.io
-
 about me:
-- hi, i'm anne.
+- hi, i'm maddie.
 - i use she/they.
 - i'm 14.
 - i'm a trans girl.
