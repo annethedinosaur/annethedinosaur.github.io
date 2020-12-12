@@ -1,4 +1,4 @@
-# annethedinosaur.github.io
+# maddiethedinosaur.github.io
 
 about me:
 - hi, i'm anne.
