@@ -28,7 +28,7 @@ do not interact:
 
 social media:
 - https://curiouscat.qa/annethedinosaur
-- https://www.twitter.com/AnneTheDinosaur
+- https://www.twitter.com/LeftComMaddie
 - https://youtube.com/channel/UC2XIajHZhlohLKpXQlIwv4A
 - comrade human being#7143 (discord)
 - @annetheleftcom:matrix.org (matrix)
