@@ -26,6 +26,13 @@ do not interact:
 - hardcore rightist.
 - bigot.
 
+social media:
+- https://curiouscat.qa/annethedinosaur
+- https://www.twitter.com/AnneTheDinosaur
+- https://youtube.com/channel/UC2XIajHZhlohLKpXQlIwv4A
+- comrade human being#7143 (discord)
+- 
+
 ships i like:
 - honestly don't know why i'm putting this here because i don't ship anyone (besides the fact i think marx and engels might have been a bit gay for eachother).
 
