@@ -4,7 +4,6 @@ about me:
 - i'm 14.
 - i'm a trans girl.
 - i might be a lesbian.
-- i hate sex.
 - i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
 - i was born in toronto and am french canadian.
 
