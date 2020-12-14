@@ -65,3 +65,12 @@ my politics:
 11. I do not believe Marxism is a “historically invariant” theory. Marxism is a fluid and changing doctrine, and is not set in stone. Support for a “historically invariant” Marxism is an abandonment of Marxist historical materialism.
 12. I am opposed to civilization as I believe it alienates people from the environment, leads to the division of labour, leads to class society and is inherently exploitative.
 13. I do not support giving the central committee of the party the responsibility of developing theory by itself, isolated from the rest of the party as I believe this is a recipe for half-baked theory and disaster.
+
+why i'm an atheist:
+- the notion of a god or multiple gods makes no sense to me.
+- a lot of religion is used as bland escapism and has historically been used to justify not doing any material change for people.
+- literally all holy books are too long for me to bother reading, not because i dislike long books but because i literally do not give a single shit about their contents.
+- a lot of religion has restrictions on food for whatever the fuck reason.
+- a lot of religion has clothing related stuff that you must wear or whatever.
+- the notion of rebirth and the afterlife, although some may find them comforting, i believe they are bullshit and when we die, we die, we don't even feel the void because we don't feel.
+- apparently paganism (or at least my pagan friend) believes that we can make fucking realities which i believe is bullshit.
