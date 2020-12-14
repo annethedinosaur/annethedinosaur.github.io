@@ -23,9 +23,10 @@ do not interact:
 - hardcore religious.
 - hardcore rightist.
 - bigot.
+- 
 
 social media:
-- https://curiouscat.qa/annethedinosaur
+- https://curiouscat.qa/LeftComMaddie
 - https://www.twitter.com/LeftComMaddie
 - https://youtube.com/channel/UC2XIajHZhlohLKpXQlIwv4A
 - comrade human being#7143 (discord)
