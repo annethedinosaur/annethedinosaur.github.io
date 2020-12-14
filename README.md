@@ -75,3 +75,4 @@ why i'm an atheist:
 - the notion of rebirth and the afterlife, although some may find them comforting, i believe they are bullshit and when we die, we die, we don't even feel the void because we don't feel.
 - apparently paganism (or at least my pagan friend) believes that we can make fucking realities which i believe is bullshit.
 - a lot of religious morals are just extremely stupid.
+- religions usually have an extremely binary concept of good and evil which is just stupid.
