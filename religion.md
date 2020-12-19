@@ -1,7 +1,7 @@
 # why i'm an atheist:
 - the notion of a god or multiple gods makes no sense to me.
-- a lot of religion is used as bland escapism and has historically been used to justify not doing any material change for people or for keeping the old, society.
-- literally all holy books are too long for me to bother reading, not because i dislike long books but because i literally do not give a single shit about their contents.
+- a lot of religion is used as bland escapism and has historically been used to justify not doing any material change for people or for keeping the old society.
+- literally all holy books are too long for me to bother reading, not because i dislike long books but because i literally do not give a single shit about their contents and they have a lot of self-contradictions.
 - a lot of religion has restrictions on food for whatever the fuck reason.
 - a lot of religion has clothing related stuff that you must wear or whatever.
 - the notion of rebirth and the afterlife, although some may find them comforting, i believe they are bullshit and when we die, we die, we don't even feel the void because we don't feel.
@@ -9,3 +9,4 @@
 - a lot of religious morals are just extremely stupid.
 - religions usually have an extremely binary concept of good and evil which is just stupid.
 - the normal argument for why xyz religion formed is always "divine intervention" which is incompatible with the materialist conception of history.
+- the supporters of the abrahamic religions really hate literally all satanism but satanism seems cool, and apparently there's an atheist version of satanism. 
