@@ -1,4 +1,4 @@
-# What I Stand For
+# Economics
 1. My views of the world are those of Marx’s Scientific Socialism.
 2. I see communism as the only viable solution for the survival of humanity.
 3. I believe an international revolution led by the vanguard party is the only way to establish the proletarian dictatorship via the soviets for the establishment of communist society.
@@ -6,7 +6,7 @@
 5. The proletarian dictatorship is not to be understood as a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
 6. I do not believe the soviets are organizations of workers from a specific factory, nor are they organizations of workers of a specific trade. On the contrary, they are organizations of delegates from the whole proletariat of a specific region, on the lowest level belonging to a town.
 7. I believe communist society is inherently free of borders, class, money, commodity production, police, armies, state, scarcity, religion, the family, government, hierarchy, exchange, wage labour, etc. In the lower phase of communist society, the division of labour has not completely been done away with and distribution is based upon contribution. Under higher phase communism, distribution is based on need and the division of labour is completely abolished. 
-# What I Stand Against
+# Politics
 1.  I do not advocate communism because it will create “equality.” I advocate for communism because we believe it is the emancipation of humanity, and will lead to the material human community and a new era of human freedom and development.
 2. I believe the internationals of “Social-Democracy”, “Trotskyism” and “Marxism-Leninism” are the internationals of betrayal and the "communist" and "socialist" parties are bourgeois.
 3. I see all unions, whether “rank-and-file”, “industrial” or “trade” as tools of the capitalist class to either keep consciousness low and fuck over workers or act as cul-de-sacs of any potential revolutionary action. I am for revolutionary organization completely outside and against the unions, although I believe that communists should work inside the unions to spread our programme, as unions have some of the highest concentrations of workers in some countries.
@@ -20,3 +20,5 @@
 11. I do not believe Marxism is a “historically invariant” theory. Marxism is a fluid and changing doctrine, and is not set in stone. Support for a “historically invariant” Marxism is an abandonment of Marxist historical materialism.
 12. I am opposed to civilization as I believe it alienates people from the environment, leads to the division of labour, leads to class society and is inherently exploitative.
 13. I do not support giving the central committee of the party the responsibility of developing theory by itself, isolated from the rest of the party as I believe this is a recipe for half-baked theory and disaster.
+# Philosophy
+1. 
