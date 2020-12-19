@@ -8,3 +8,4 @@
 - apparently paganism (or at least my pagan friend) believes that we can make fucking realities which i believe is bullshit.
 - a lot of religious morals are just extremely stupid.
 - religions usually have an extremely binary concept of good and evil which is just stupid.
+- the normal argument for why xyz religion formed is always "divine intervention" which is incompatible with the materialist conception of history.
