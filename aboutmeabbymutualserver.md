@@ -15,7 +15,7 @@ hello there, here's a quick rundown of shit about me
 - i like half life and doom
 - i like scp and lovecraftian horror
 - i drank 21 (and counting) bottles of coke in 4 days
-- i get triggered by certain aspects of bdsm, self-harm, suicide, rape, spec ops: the line
+- my triggers/squicks/whatever the fuck are certain aspects of bdsm, self-harm, suicide, rape, yelling, spec ops: the line
 - i like vaporwave and cottagecore
 - i'm trying to join klasbatalo (canadian affiliate of the internationalist communist tendency)
 - read marx
