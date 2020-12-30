@@ -8,6 +8,7 @@ hello there, here's a quick rundown of shit about me
 - i'm trans (mtf)
 - probably a lesbian
 - i'm a leftcom
+- i'm an atheist
 - i'm poly
 - taken
 - apparently i like always talk in a serious tone
