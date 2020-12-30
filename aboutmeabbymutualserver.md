@@ -5,6 +5,7 @@ hello there, here's a quick rundown of shit about me
 - my name is maddie (although you can call me anne too if you like) 
 - i'm 14 
 - i'm french canadian
+- pronouns are she/they (they/them preferred)
 - i'm trans (mtf)
 - probably a lesbian
 - i'm a leftcom
