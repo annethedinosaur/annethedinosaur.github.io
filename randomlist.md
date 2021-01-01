@@ -21,3 +21,5 @@ https://www.marxists.org/archive/bordiga/works/1946/violence.htm
 https://www.marxists.org/archive/bordiga/works/1961/janitzio.htm
 
 http://libcom.org/library/fundamental-principles-communist-production-gik
+
+https://www.leftcom.org/en/publications/revolutionary-perspectives
