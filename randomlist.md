@@ -23,3 +23,9 @@ https://www.marxists.org/archive/bordiga/works/1961/janitzio.htm
 http://libcom.org/library/fundamental-principles-communist-production-gik
 
 https://www.leftcom.org/en/publications/revolutionary-perspectives
+
+http://libcom.org/library/collection-translated-writings-amadeo-bordiga
+
+http://libcom.org/library/communism-against-democracy-theses-gci-icg
+
+http://libcom.org/library/dialogue-bordiga-jacques-camatte
