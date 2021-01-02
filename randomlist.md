@@ -29,3 +29,17 @@ http://libcom.org/library/collection-translated-writings-amadeo-bordiga
 http://libcom.org/library/communism-against-democracy-theses-gci-icg
 
 http://libcom.org/library/dialogue-bordiga-jacques-camatte
+
+http://libcom.org/library/dem-principle-bordiga
+
+http://libcom.org/library/theory-action-marxist-doctrine-amadeo-bordiga
+
+http://libcom.org/blog/working-class-holds-key-new-world-14092018
+
+http://libcom.org/blog/there-revolutionary-method-29032015
+
+http://libcom.org/library/towards-critique-democratic-form-draft
+
+http://libcom.org/library/against-the-myth-of-democratic-rights-and-liberties-communism-8
+
+http://libcom.org/library/treasons-communism-against-democracy-pamphlet
