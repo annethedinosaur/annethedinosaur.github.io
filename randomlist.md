@@ -43,3 +43,19 @@ http://libcom.org/library/towards-critique-democratic-form-draft
 http://libcom.org/library/against-the-myth-of-democratic-rights-and-liberties-communism-8
 
 http://libcom.org/library/treasons-communism-against-democracy-pamphlet
+
+https://gegen-kapital-und-nation.org/en/why-anti-national/
+
+https://www.marxists.org/archive/damen/1952/disagreement.htm
+
+https://www.marxists.org/archive/luxemburg/1909/national-question/index.htm
+
+http://www.leftcom.org/en/articles/2014-03-26/onorato-damen-and-the-italian-left
+
+http://libcom.org/library/role_party_bordiga
+
+https://antinational.org/en/freedom-and-equality/
+
+https://subversionpress.files.wordpress.com/2016/08/religion-shorter.pdf
+
+http://www.leftcom.org/en/articles/2016-09-26/against-all-nationalisms
