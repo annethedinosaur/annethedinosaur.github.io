@@ -5,6 +5,8 @@
 4. The party spreads the revolutionary programme to the class and intervenes within class struggles.
 5. The party leads the class during a revolution.
 
+# 
+
 # Economics
 1. My views of the world are those of Marx’s Scientific Socialism.
 2. I see communism as the only viable solution for the survival of humanity.
