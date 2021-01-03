@@ -5,7 +5,23 @@
 4. The party spreads the revolutionary programme to the class and intervenes within class struggles.
 5. The party leads the class during a revolution.
 
-# 
+# Communist society
+1. Communist society has no borders. 
+2. Communist society has no class. 
+3. Communist society has no money. 
+4. Communist society has no commodity production. 
+5. Communist society has no police. 
+6. Communist society has no armies. 
+7. Communist society has no state. 
+8. Communist society has no scarcity. 
+9. Communist society has no religion. 
+10. Communist society has no family. 
+11. Communist society has no prisons. 
+12. Communist society has no schools. 
+13. Communist society has no exchange. 
+14. Communist society has no wage labour.
+15. Communist society has no work.
+16. In the lower phase of communist society, distribution is based upon contribution. Under higher phase communism, distribution is based on need. 
 
 # Economics
 1. My views of the world are those of Marx’s Scientific Socialism.
@@ -13,8 +29,7 @@
 3. I believe an international revolution led by the vanguard party is the only way to establish the proletarian dictatorship via the soviets for the establishment of communist society.
 4. The proletarian dictatorship is not to be understood as a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
 5. I do not believe the soviets are organizations of workers from a specific factory, nor are they organizations of workers of a specific trade. On the contrary, they are organizations of delegates from the whole proletariat of a specific region, on the lowest level belonging to a town.
-6. I believe communist society is inherently free of borders, class, money, commodity production, police, armies, state, scarcity, religion, the family, government, hierarchy, exchange, wage labour, etc. In the lower phase of communist society, the division of labour has not completely been done away with and distribution is based upon contribution. Under higher phase communism, distribution is based on need and the division of labour is completely abolished. 
-# Politics
+
 1. I do not advocate communism because it will create “equality.” I advocate for communism because we believe it is the emancipation of humanity, and will lead to the material human community and a new era of human freedom and development.
 2. I believe the internationals of “Social-Democracy”, “Trotskyism” and “Marxism-Leninism” are the internationals of betrayal and the "communist" and "socialist" parties are bourgeois.
 3. I see all unions, whether “rank-and-file”, “industrial” or “trade” as tools of the capitalist class to either keep consciousness low and fuck over workers or act as cul-de-sacs of any potential revolutionary action. I am for revolutionary organization completely outside and against the unions, although I believe that communists should work inside the unions to spread our programme, as unions have some of the highest concentrations of workers in some countries.
