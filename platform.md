@@ -5,7 +5,7 @@
 4. The party spreads the revolutionary programme to the class and intervenes within class struggles.
 5. The party leads the class during a revolution.
 
-# Communist society
+# Communist Society
 1. Communist society has no borders. 
 2. Communist society has no class. 
 3. Communist society has no money. 
@@ -23,11 +23,14 @@
 15. Communist society has no work.
 16. In the lower phase of communist society, distribution is based upon contribution. Under higher phase communism, distribution is based on need. 
 
-# Economics
+# Proletarian Dictatorship
+1. The proletarian dictatorship is not a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
+2. Police and the standing army do not exist during the proletarian dictatorship, as police are a tool of the bourgeois and standing armies usually lead to bureaucratization.
+
 1. My views of the world are those of Marx’s Scientific Socialism.
 2. I see communism as the only viable solution for the survival of humanity.
 3. I believe an international revolution led by the vanguard party is the only way to establish the proletarian dictatorship via the soviets for the establishment of communist society.
-4. The proletarian dictatorship is not to be understood as a defence of nations like China, Vietnam, Cuba, North Korea, etc. On the contrary, the proletarian dictatorship will have to be established in those countries via a working-class revolution.
+
 5. I do not believe the soviets are organizations of workers from a specific factory, nor are they organizations of workers of a specific trade. On the contrary, they are organizations of delegates from the whole proletariat of a specific region, on the lowest level belonging to a town.
 
 1. I do not advocate communism because it will create “equality.” I advocate for communism because we believe it is the emancipation of humanity, and will lead to the material human community and a new era of human freedom and development.
@@ -36,10 +39,10 @@
 4. I am against collaboration with bourgeois and pseudo-proletarian parties and as such oppose the united front, which is a front opposed to the best interests of the class.
 5. I oppose both fascism and anti-fascism. Historically anti-fascism has been used by Roosevelt, Churchill, Stalin and De Gaulle to justify mass slaughter of the proletariat and has been used as a cul-de-sac for revolutionary consciousness by the bourgeoisie.
 6. I reject all “national liberation” ideologies as bourgeois, as the proletariat itself must revolt across the globe to establish a proletarian dictatorship, instead of the whole of the “colonized peoples” revolting and establishing a new bourgeois dictatorship.
-7. I see parliamentary politics as a bourgeois merry-go-round and advocate abstentionism in elections. Change does not come through the ballot box, but through workers’ power via the soviets and vanguard party.
+7. I see parliamentary politics as a bourgeois merry-go-round and advocate abstentionism in elections. Change does not come through the ballot box, but through workers’ taking action against the capitalist class.
 8. I am opposed to mandatory labour and believe that the division of labour (employment of people for a specific task) and employment itself (labour under communism is not paid, not because people work for nothing but because money no longer exists) should be done away with.
 9. I believe that the family unit only serves a purpose in capitalism and should be done away with in favour of free association.
-10. I reject the existence of police and the standing army during the proletarian dictatorship, as police are a tool of the bourgeois and standing armies usually lead to bureaucratization.
+
 11. I do not believe Marxism is a “historically invariant” theory. Marxism is a fluid and changing doctrine, and is not set in stone. Support for a “historically invariant” Marxism is an abandonment of Marxist historical materialism.
 12. I am opposed to civilization as I believe it alienates people from the environment, leads to the division of labour, leads to class society and is inherently exploitative.
 13. I do not support giving the central committee of the party the responsibility of developing theory by itself, isolated from the rest of the party as I believe this is a recipe for half-baked theory and disaster.
