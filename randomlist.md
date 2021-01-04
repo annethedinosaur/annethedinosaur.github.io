@@ -1,3 +1,7 @@
+# This reading list is far from done and should not even be considered a reading list at this point.
+
+***Marx***
+
 http://www.leftcom.org/en/articles/2020-12-27/an-introduction-to-the-work-of-the-cwo-and-ict
 
 https://www.marxists.org/archive/marx/works/subject/hist-mat/hous-qst/ch03b.htm
