@@ -1,3 +1,9 @@
+# ICO SUGGESTED READINGS
+
+## Intro
+
+This is the ICO list of suggested readings as it 
+
 # Economic and Philosophic Manuscripts of 1844
 
 ## Preface
