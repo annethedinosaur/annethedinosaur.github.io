@@ -1,7 +1,7 @@
 about me:
 - hi, i'm maddie.
 - i use she/they.
-- i'm 14.
+- i'm 15.
 - i'm a trans girl.
 - i might be a lesbian.
 - i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
