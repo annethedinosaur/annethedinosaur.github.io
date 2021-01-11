@@ -5,7 +5,6 @@ about me:
 - i'm a trans girl.
 - i might be a lesbian.
 - i'm a leftcom, italian leftcom to be specific and i would have sided with damen to be even more specific.
-- i was born in toronto and am french canadian.
 
 interests:
 - i like music (i'm trying to make some vaporwave), i really enjoy metal and vaporwave to be specific.
@@ -33,7 +32,7 @@ social media:
 ships i like:
 - honestly don't know why i'm putting this here because i don't ship anyone (besides the fact i think marx and engels might have been a bit gay for eachother).
 
-triggers (non highlighted is slight, italics is minor, bold is major and italics and bold is a massive trigger):
+triggers/squicks (non highlighted is slight, italics is minor, bold is major and italics and bold is a massive trigger/squick):
 - **razors, shanks, and most knives.**
 - **rape.**
 - **bdsm.**
